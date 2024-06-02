@@ -18,3 +18,4 @@ Modo de Preparo - Strogonoff de frango
 3. Depois, acrescente 2 colheres de sopa de molho de tomate, 2 colheres de sopa de mostarda, 2 colheres de sopa de ketchup e champignon a gosto. Misture.
 4. Desligue o fogo e acrescente 1 lata de creme de leite. Misture novamente.
 5. Sirva em seguida.
+6. Bom proveito!
