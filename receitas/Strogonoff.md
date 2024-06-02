@@ -1,5 +1,5 @@
 
-Strogonoff de Frango
+Strogonoff de Frango Cremoso
 
 Ingredientes
 3 colheres de sopa de óleo
